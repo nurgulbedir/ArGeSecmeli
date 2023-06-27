@@ -4,3 +4,5 @@ Fırat Üniversitesi Bilgisayar Mühendisliği bölümünde Araştırma Gelişti
 Bana Linkedin hesabımdan ulaşabilirsiniz✨ 
 
 https://www.linkedin.com/in/nurgulbedir/
+
+  ![İsimsiz video ‐ Clipchamp ile yapıldı (1)](https://github.com/nurgulbedir/ArGeSecmeli/assets/119707805/92c9d3a6-df5a-4dfd-908a-d6f98e9fa3eb)
